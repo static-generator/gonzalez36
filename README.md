@@ -27,4 +27,3 @@ Here are some of my works that took a lot of time and love! These artworks are s
 | Platform | Link/credntials |
 | ----------- | ----------- |
 | Gbox | hpsantos@gbox.adnu.edu.ph |
-
